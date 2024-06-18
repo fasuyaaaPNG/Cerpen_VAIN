@@ -245,3 +245,5 @@ Zein mencoba mengganggu Tarzerus dengan cambuk yang menciptakan kebisingan, namu
 Zein meregenerasi lengannya dan berkata, "Kau berkorban setelah negaramu hancur? Lucu sekali. Aku juga rela mati demi membalaskan kematian Airi." Zein mengeluarkan jurus Crimson Dimensional Rift, sementara Tarzerus mengeluarkan Gamma Hisatsu: Distraction Void. "Sepertinya kau baru bisa dibunuh jika seluruh pasukanmu tumbang, kan? Sepertinya kau sudah mengerahkan seluruhnya ke sini," ucap Zein. "Ternyata kau tahu banyak juga," jawab Tarzerus.
 
 Mereka berdua memperdekat jarak dan saling serang, menciptakan ledakan besar yang menghancurkan seluruh wilayah Edoril. Usai ledakan, bayangan seseorang terlihat di balik asap, namun segera menghilang. Hingga saat ini, tidak ada yang tahu siapa yang berhasil memenangkan pertarungan tersebut.
+
+------------------------------------------------------------------------------------------------------------------------------------------------
