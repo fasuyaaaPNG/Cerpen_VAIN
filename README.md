@@ -126,7 +126,7 @@ Di suatu tempat dekat perbatasan yang jauh dari pemukiman, Zein melihat sebuah a
 
 "Baiklah," jawab Airi.
 
-Airi menghentikan aktivasi sihirnya, dan mereka berdua pun beristirahat. Ketika Airi terbangun, ia tidak melihat Zein dan senjata milik Zein di sekitarnya dan merasa kebingungan. Airi berpikir Zein pergi meninggalkannya sendiri lagi, namun sandal Zein masih ada di sana. 
+Airi menghentikan aktivasi sihirnya, mereka berdua pun beristirahat. Ketika Airi terbangun, ia tidak melihat Zein dan senjata milik Zein di sekitarnya membuat Airi merasa kebingungan. Airi berpikir Zein pergi meninggalkannya sendiri lagi, namun ponsel Zein masih ada di sana. 
 
 Pasukan kerajaan yang dipimpin oleh Eneru tiba-tiba datang menghampiri Airi. "Hei Airi, tumben kamu sendirian saja. Kemana si Zein itu? Pasti dia sudah dimakan para iblis di luar sana, hahahaha," ejek Eneru kepada Airi.
 
