@@ -1,5 +1,7 @@
 # VAIN
 
+![1](https://github.com/fasuyaaaPNG/Cerpen_VAIN/assets/154081073/e5c4c74d-ad53-4ea5-938a-b6255ea5b3ca)
+
 Zein berdiri di tengah kota yang hancur, dikelilingi asap reruntuhan dan bau darah yang menyengat, campuran aroma iblis. Dia telah menunggu saat ini, sensasi kekuatannya mengalir dalam dirinya. "Hei!" Teriakan Tarzerus mencoba menarik perhatiannya, namun Zein tidak menggubris panggilan itu.
 
 "Kau, orang dari golongan rendahan," tawa Tarzerus menggema melintasi negeri. "Sungguh bodoh! Aku tak pernah terbayangkan kau masih hidup!" Tarzerus terlihat senang melihat Zein masih bertahan.
